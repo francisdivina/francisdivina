@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Divina Francis. 
 - 👀 I’m interested in JAVA HTML(5) - Frontend Software Developing and UX/UI design. 
 - 🌱 I’m currently learning JAVA HTML(5). 
-- 💞️ I’m looking to collaborate on UX/UI design. 
+- 💞️ I’m looking to collaborate on UX/UI design, NFT, & digital design. 
 - 📫 How to reach me francisdivina8@gmail.com
